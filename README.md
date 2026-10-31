@@ -1,6 +1,6 @@
 # ஸ்ரீ கருட புராணம் | Garudapuranam
 
-Daily Tamil mythology short-video series — the Garuda Purana, episode by episode, with Tamil voiceover, cinematic visuals and animated hooks. 20+ episodes published, one new episode **every day at 8:15 PM IST**.
+Daily Tamil mythology short-video series — the Garuda Purana, episode by episode, with Tamil voiceover, cinematic visuals and animated hooks. 27 episodes published, one new episode **every day at 8:15 PM IST**.
 
 ## Watch the series
 
