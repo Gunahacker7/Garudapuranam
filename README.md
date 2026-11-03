@@ -4,8 +4,8 @@ Daily Tamil mythology short-video series — the Garuda Purana, episode by episo
 
 ## Watch the series
 
-- ▶️ **YouTube** — https://www.youtube.com/@LimitLessLearning11
-- 📸 **Instagram** — https://www.instagram.com/krishmotivates
+- ▶️ **YouTube** — https://youtube.com/@garudapuranam-tamil
+- 📸 **Instagram** — https://instagram.com/garudapuranamhQ
 - 𝕏 **X (Twitter)** — https://x.com/GarudapuranamHQ
 - 💬 **WhatsApp Channel** — https://whatsapp.com/channel/0029Vb8nYTrHgZWdxQFhRU0V
 
